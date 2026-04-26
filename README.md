@@ -20,13 +20,13 @@ SIII publishes and supports the following scholarly journals:
   → Submit your paper
 
 - **AITS Journal**  
-  Artificial Intelligence and Technology Systems  
+  Artificial Intelligence and Technical Sciences 
   Publication frequency: Biannual  
   → Journal website  
   → Submit your paper
 
 - **Linguiverses Journal**  
-  Linguistics, language studies, and communication  
+  Language studies and communication  
   Publication frequency: Biannual  
   → Journal website  
   → Submit your paper
